@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Lun-Kai Kang
+- 👀 I’m studing in seismology as a master student
